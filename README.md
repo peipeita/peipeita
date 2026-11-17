@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @peipeita
 - 👀 I’m interested in Plant genetics and physiology. 🌾 🌷
-- 🌱 I’m currently learning Mandarin Chinese (3rd lang) 三不五時學習中文唷
+- 🌱 I’m currently learning Mandarin Chinese (3rd lang) 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
